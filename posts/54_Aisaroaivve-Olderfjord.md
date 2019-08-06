@@ -1,4 +1,4 @@
-# Aisaroaivve :norway: — Olderfjord :norway:
+# Aisaroaivve 🇳🇴 — Olderfjord 🇳🇴
 
 <!-- 50km / 262m+ / 503m- -->
 

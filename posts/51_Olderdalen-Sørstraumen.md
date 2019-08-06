@@ -1,4 +1,4 @@
-# Olderdalen :norway: — Sørstraumen :norway:
+# Olderdalen 🇳🇴 — Sørstraumen 🇳🇴
 
 <!-- 103km / 1089m+ / 1079m- -->
 

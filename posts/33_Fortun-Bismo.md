@@ -1,4 +1,4 @@
-# Fortun :norway: — Bismo :norway:
+# Fortun 🇳🇴 — Bismo 🇳🇴
 
 <!-- 84km / 1400m+ / 1679m- -->
 

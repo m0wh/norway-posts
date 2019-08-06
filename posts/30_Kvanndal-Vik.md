@@ -1,4 +1,4 @@
-# Kvanndal :norway: — Vik :norway:
+# Kvanndal 🇳🇴 — Vik 🇳🇴
 
 <!-- 83km / 2018m+ / 2027m- -->
 

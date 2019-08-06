@@ -1,4 +1,4 @@
-# Andenes :norway: — Brensholmen :norway:
+# Andenes 🇳🇴 — Brensholmen 🇳🇴
 
 <!-- 89km / 1121m+ / 1121m- -->
 

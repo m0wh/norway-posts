@@ -1,4 +1,4 @@
-# Montfaucon :fr: — Bartenheim :fr:
+# Montfaucon 🇫🇷 — Bartenheim 🇫🇷
 
 <!-- 116 km / 1634m+ / m- -->
 

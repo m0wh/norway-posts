@@ -1,4 +1,4 @@
-# Les Grangettes :switzerland: — Le Vaud :switzerland:
+# Les Grangettes 🇨🇭 — Le Vaud 🇨🇭
 
 <!-- 90km / 1000m+ / m- -->
 

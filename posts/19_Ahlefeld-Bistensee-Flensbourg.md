@@ -1,4 +1,4 @@
-# Ahlefeld-Bistensee :de: — Flensbourg :de:
+# Ahlefeld-Bistensee 🇩🇪 — Flensbourg 🇩🇪
 
 <!-- 62km / 223m+ / 200m- -->
 

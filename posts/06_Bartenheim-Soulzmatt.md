@@ -1,4 +1,4 @@
-# Bartenheim :fr: — Soulzmatt :fr:
+# Bartenheim 🇫🇷 — Soulzmatt 🇫🇷
 
 <!-- 101km / 358m+ / m- -->
 

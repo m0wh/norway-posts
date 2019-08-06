@@ -1,4 +1,4 @@
-# Tromsø :norway: — Olderdalen :norway:
+# Tromsø 🇳🇴 — Olderdalen 🇳🇴
 
 <!-- 94km / 639m+ / 688m- -->
 

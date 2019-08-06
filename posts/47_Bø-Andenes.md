@@ -1,4 +1,4 @@
-# Bø :norway: — Andenes :norway:
+# Bø 🇳🇴 — Andenes 🇳🇴
 
 <!-- 49km / 123m+ / 120m- -->
 

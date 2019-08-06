@@ -1,4 +1,4 @@
-# Couvet :switzerland: — Montfaucon :fr:
+# Couvet 🇨🇭 — Montfaucon 🇫🇷
 
 <!-- 94km / 1267m+ / m- -->
 

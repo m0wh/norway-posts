@@ -1,4 +1,4 @@
-# Olderfjord :norway: — Porsangnes :norway:
+# Olderfjord 🇳🇴 — Porsangnes 🇳🇴
 
 <!-- 67km / 659m+ / 540m- -->
 

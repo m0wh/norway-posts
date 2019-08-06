@@ -1,4 +1,4 @@
-# Kristiansand :norway: — Byglandsfjord :norway:
+# Kristiansand 🇳🇴 — Byglandsfjord 🇳🇴
 
 <!-- 83km / 795m+ / 610m- -->
 

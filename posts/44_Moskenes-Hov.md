@@ -1,4 +1,4 @@
-# Moskenes :norway: — Hov :norway:
+# Moskenes 🇳🇴 — Hov 🇳🇴
 
 <!-- 122km / 1134m+ / 1124m- -->
 

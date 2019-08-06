@@ -1,4 +1,4 @@
-# Linden :de: — Teutoburger Waldsee :de:
+# Linden 🇩🇪 — Teutoburger Waldsee 🇩🇪
 
 <!-- 78km / 569m+ / 450m- -->
 

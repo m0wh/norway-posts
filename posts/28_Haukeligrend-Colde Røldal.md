@@ -1,4 +1,4 @@
-# Haukeligrend :norway: — Col de Røldal :norway:
+# Haukeligrend 🇳🇴 — Col de Røldal 🇳🇴
 
 <!-- 80km / 1419m+ / 900m- -->
 

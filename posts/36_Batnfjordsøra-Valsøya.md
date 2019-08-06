@@ -1,4 +1,4 @@
-# Batnfjordsøra :norway: — Valsøya :norway:
+# Batnfjordsøra 🇳🇴 — Valsøya 🇳🇴
 
 <!-- 63km / 634m+ / 621m- -->
 

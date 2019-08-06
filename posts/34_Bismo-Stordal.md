@@ -1,4 +1,4 @@
-# Bismo :norway: — Stordal :norway:
+# Bismo 🇳🇴 — Stordal 🇳🇴
 
 <!-- 85km / 1021m+ / 1450m- -->
 

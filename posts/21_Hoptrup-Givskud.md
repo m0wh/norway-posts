@@ -1,4 +1,4 @@
-# Hoptrup :denmark: — Givskud :denmark:
+# Hoptrup 🇩🇰 — Givskud 🇩🇰
 
 <!-- 99km / 621m+ / 610m- -->
 

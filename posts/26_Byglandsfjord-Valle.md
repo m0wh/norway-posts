@@ -1,4 +1,4 @@
-# Byglandsfjord :norway: — Valle :norway:
+# Byglandsfjord 🇳🇴 — Valle 🇳🇴
 
 <!-- 101km / 901m+ / 767m- -->
 

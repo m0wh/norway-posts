@@ -1,4 +1,4 @@
-# Hov :norway: — Melbu :norway:
+# Hov 🇳🇴 — Melbu 🇳🇴
 
 <!-- 107km / 931m+ / 942m- -->
 

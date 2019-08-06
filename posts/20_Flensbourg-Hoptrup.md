@@ -1,4 +1,4 @@
-# Flensbourg :de: — Hoptrup :denmark:
+# Flensbourg 🇩🇪 — Hoptrup 🇩🇰
 
 <!-- 103km / 342m+ / 321m- -->
 

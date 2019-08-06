@@ -1,4 +1,4 @@
-# Vik :norway: — Hafslo :norway:
+# Vik 🇳🇴 — Hafslo 🇳🇴
 
 <!-- 71km / 673m+ / 521m- -->
 

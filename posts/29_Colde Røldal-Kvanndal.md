@@ -1,4 +1,4 @@
-# Col de Røldal :norway: — Kvanndal :norway:
+# Col de Røldal 🇳🇴 — Kvanndal 🇳🇴
 
 <!-- 81km / 421m+ / 978m- -->
 

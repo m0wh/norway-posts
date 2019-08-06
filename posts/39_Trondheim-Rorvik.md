@@ -1,4 +1,4 @@
-# Trondheim :norway: — Rorvik :norway:
+# Trondheim 🇳🇴 — Rorvik 🇳🇴
 
 <!-- 10km / 3m+ / 3m- -->
 

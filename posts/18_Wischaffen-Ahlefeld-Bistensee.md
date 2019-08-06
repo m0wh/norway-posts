@@ -1,4 +1,4 @@
-# Wischaffen :de: — Ahlefeld-Bistensee :de:
+# Wischaffen 🇩🇪 — Ahlefeld-Bistensee 🇩🇪
 
 <!-- 102km / 287m+ / 321m- -->
 

@@ -1,4 +1,4 @@
-# Le Vaud :switzerland: — Le Sentier :switzerland:
+# Le Vaud 🇨🇭 — Le Sentier 🇨🇭
 
 <!-- 40km / 800m+ / m- -->
 

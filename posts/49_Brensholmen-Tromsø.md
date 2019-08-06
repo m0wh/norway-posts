@@ -1,4 +1,4 @@
-# Brensholmen :norway: — Tromsø :norway:
+# Brensholmen 🇳🇴 — Tromsø 🇳🇴
 
 <!-- 65km / 518m+ / 435m- -->
 

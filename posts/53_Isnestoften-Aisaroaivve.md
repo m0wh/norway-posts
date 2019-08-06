@@ -1,4 +1,4 @@
-# Isnestoften :norway: — Aisaroaivve :norway:
+# Isnestoften 🇳🇴 — Aisaroaivve 🇳🇴
 
 <!-- 113km / 1387m+ / 1175m- -->
 

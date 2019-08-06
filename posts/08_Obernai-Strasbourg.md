@@ -1,4 +1,4 @@
-# Obernai :fr: — Strasbourg :fr:
+# Obernai 🇫🇷 — Strasbourg 🇫🇷
 
 <!-- 52km / 157m+ / m- -->
 

@@ -1,4 +1,4 @@
-# Sørstraumen :norway: — Isnestoften :norway:
+# Sørstraumen 🇳🇴 — Isnestoften 🇳🇴
 
 <!-- 78km / 704m+ / 689m- -->
 

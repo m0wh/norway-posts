@@ -1,4 +1,4 @@
-# Strasbourg :fr: — Neugartenhof :fr:
+# Strasbourg 🇫🇷 — Neugartenhof 🇫🇷
 
 <!-- 81km / 176m+ / 180m- -->
 

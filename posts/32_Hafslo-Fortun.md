@@ -1,4 +1,4 @@
-# Hafslo :norway: — Fortun :norway:
+# Hafslo 🇳🇴 — Fortun 🇳🇴
 
 <!-- 55km / 1419m+ / 452m- -->
 

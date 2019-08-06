@@ -1,4 +1,4 @@
-# Skringstrup :denmark: — Aalborg :denmark:
+# Skringstrup 🇩🇰 — Aalborg 🇩🇰
 
 <!-- 84km / 393m+ / 341m- -->
 

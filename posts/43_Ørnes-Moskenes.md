@@ -1,4 +1,4 @@
-# Ørnes :norway: — Moskenes :norway:
+# Ørnes 🇳🇴 — Moskenes 🇳🇴
 
 <!-- 2km / 0m+ / 0m- -->
 

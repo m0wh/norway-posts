@@ -1,4 +1,4 @@
-# Le sentier :switzerland: — Couvet :switzerland:
+# Le sentier 🇨🇭 — Couvet 🇨🇭
 
 <!-- 82km / 1300m+ / m- -->
 

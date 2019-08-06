@@ -1,4 +1,4 @@
-# Valle :norway: — Haukeligrend :norway:
+# Valle 🇳🇴 — Haukeligrend 🇳🇴
 
 <!-- 86km / 1112m+ / 800m- -->
 

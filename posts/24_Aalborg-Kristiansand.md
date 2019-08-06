@@ -1,4 +1,4 @@
-# Aalborg :denmark: — Kristiansand :norway:
+# Aalborg 🇩🇰 — Kristiansand 🇳🇴
 
 <!-- 20km / 100m+ / 100m- -->
 

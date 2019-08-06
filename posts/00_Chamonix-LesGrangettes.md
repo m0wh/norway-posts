@@ -1,4 +1,4 @@
-# Chamonix :fr: — Les Grangettes :switzerland:
+# Chamonix 🇫🇷 — Les Grangettes 🇨🇭
 
 <!-- 90km / 1200m+ / m- -->
 

@@ -1,4 +1,4 @@
-# Givskud :denmark: — Skringstrup :denmark:
+# Givskud 🇩🇰 — Skringstrup 🇩🇰
 
 <!-- 115km / 678m+ / 696m- -->
 

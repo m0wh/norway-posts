@@ -1,4 +1,4 @@
-# Elligsgarden camping :norway: — Trondheim :norway:
+# Elligsgarden camping 🇳🇴 — Trondheim 🇳🇴
 
 <!-- 80km / 431m+ / 367m- -->
 

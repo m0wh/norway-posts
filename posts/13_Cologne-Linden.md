@@ -1,4 +1,4 @@
-# Cologne :de: — Linden :de:
+# Cologne 🇩🇪 — Linden 🇩🇪
 
 <!-- 106km / 605m+ / 589m- -->
 

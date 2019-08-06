@@ -1,4 +1,4 @@
-# Teutoburger Waldsee :de: — Bassum :de:
+# Teutoburger Waldsee 🇩🇪 — Bassum 🇩🇪
 
 <!-- 108km / 436m+ / 521m- -->
 

@@ -1,4 +1,4 @@
-# Bassum :de: — Worpswede :de:
+# Bassum 🇩🇪 — Worpswede 🇩🇪
 
 <!-- 70km / 231m+ / 220m- -->
 

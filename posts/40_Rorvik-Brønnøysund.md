@@ -1,4 +1,4 @@
-# Rorvik :norway: — Brønnøysund :norway:
+# Rorvik 🇳🇴 — Brønnøysund 🇳🇴
 
 <!-- 161km / 2119m+ / 2117m- -->
 

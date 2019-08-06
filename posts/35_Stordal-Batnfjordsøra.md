@@ -1,4 +1,4 @@
-# Stordal :norway: — Batnfjordsøra :norway:
+# Stordal 🇳🇴 — Batnfjordsøra 🇳🇴
 
 <!-- 87km / 925m+ / 932m- -->
 

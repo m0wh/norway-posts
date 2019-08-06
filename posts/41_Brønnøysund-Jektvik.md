@@ -1,4 +1,4 @@
-# Brønnøysund :norway: — Jektvik :norway:
+# Brønnøysund 🇳🇴 — Jektvik 🇳🇴
 
 <!-- 96km / 1521m+ / 1511m- -->
 

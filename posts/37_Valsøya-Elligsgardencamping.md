@@ -1,4 +1,4 @@
-# Valsøya :norway: — Elligsgarden camping :norway:
+# Valsøya 🇳🇴 — Elligsgarden camping 🇳🇴
 
 <!-- 50km / 345m+ / 301m- -->
 

@@ -1,4 +1,4 @@
-# Soulzmatt :fr: — Obernai :fr:
+# Soulzmatt 🇫🇷 — Obernai 🇫🇷
 
 <!-- 103km / 448m+ / m- -->
 

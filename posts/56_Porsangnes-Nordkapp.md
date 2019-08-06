@@ -1,4 +1,4 @@
-# Porsangnes :norway: — Nordkapp :norway:
+# Porsangnes 🇳🇴 — Nordkapp 🇳🇴
 
 <!-- 68km / 1255m+ / 1047m- -->
 

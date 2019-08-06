@@ -1,4 +1,4 @@
-# Jektvik :norway: — Ørnes :norway:
+# Jektvik 🇳🇴 — Ørnes 🇳🇴
 
 <!-- 81km / 1220m+ / 1119m- -->
 
