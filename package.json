@@ -1,0 +1,17 @@
+{
+  "name": "norway-posts",
+  "version": "1.0.0",
+  "main": "build.js",
+  "displayName": "AVCLM",
+  "description": "A trip through Norway",
+  "scripts": {
+    "build": "node ./src/build.js",
+    "deploy": "./src/deploy.sh"
+  },
+  "repository": "git@github.com:m0wh/norway-posts.git",
+  "author": "Malo Widerspach <malo.dewiderspach@gmail.com>",
+  "license": "MIT",
+  "dependencies": {
+    "marked": "^0.7.0"
+  }
+}
